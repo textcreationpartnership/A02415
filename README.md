@@ -36,7 +36,12 @@ This keyboarded and encoded edition of the
 
 #####Body#####
 
-1. The ſecond part, To the ſame tune.
+1. The new-found Northerne Deedle:
+OR,
+Mirth and wit according to the times,
+Fancies to fit, are in theſe followingrimes.
+
+    _ The ſecond part, To the ſame tune.
 
 **Types of content**
 
